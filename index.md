@@ -1,7 +1,1 @@
-
-
-
-
-This is the personal website of **Manfred Hanser**.
-
-Stay tuned!
+Nothing to see at this moment!
